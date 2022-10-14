@@ -2,6 +2,6 @@
 
 L'informatique, c'est fantastique !
 Le Chêne un jour dit au roseau :
-Vous avez bien sujet d'accuser la Nature
+Vous avez bien sujet d'Accuser la Nature
 
-Cependant, j'ai peur
+Cependant, j'ai peur !
